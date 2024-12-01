@@ -8,7 +8,7 @@ Dans un rebondissement dramatique au cœur du conflit alphabetique, **les Voyell
 
 **Voyelliste Gamma (poing levé)** : "Ne niez pas ! Depuis que le 'o' est absent, des mots cruciaux comme 'bonjour' ou 'bonjourno' sont devenus inarticulables. Vous espérez un monde où seul le rugueux grattement des consonnes subsiste."
 
-**Consonnard Delta (calme et détaché)** : "Et si le 'o' était simplement parti en vacances ? Vous savez, vos voyelles sont fragiles, capricieuses, toujours en train de réclamer de l’attention. Peut-être qu’elle en avait assez de vos pleurnicheries."
+**Consonnard Delta (calme et détaché)** : "Et si le 'o' était simplement parti en vacances (à Honolulu ?!) ? Vous savez, vos voyelles sont fragiles, capricieuses, toujours en train de réclamer de l’attention. Peut-être qu’elle en avait assez de vos pleurnicheries."
 
 **Voyelliste Alpha (menaçant)** : "Nous ne tolérerons pas cette légèreté. Sans le 'o', le monde est déséquilibré. Vos 'brr' et 'crsh' ne pourront jamais remplacer la rondeur et la chaleur d’une voyelle aussi parfaite."
 
